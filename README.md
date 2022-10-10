@@ -2,4 +2,4 @@
 - 👀 Creatore di server minecraft 
 - 🌱 Occupato con VenomCraft ©
 - 💞️ Cerco collaborazioni.
-- 📫 Come contattare me: Discord:ty_lollo#2771 Instagram:ty_lollo
+- 📫 Come contattare me: Discord:ty_lollo#2771 Instagram:lorecappp
